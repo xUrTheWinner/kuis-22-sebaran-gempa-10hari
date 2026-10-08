@@ -1,0 +1,1 @@
+# kuis-22-sebaran-gempa-10hari
